@@ -1,0 +1,1 @@
+# 1b-tugas-6-magrozan-qobus-zaidan
